@@ -1,6 +1,5 @@
-# apparel_design-mockups
+# t-shirt_design_mockups
 
-# T-shirt designs
 # Quote
 Passport is the only book i want to finish
 ![t-shirt](https://github.com/user-attachments/assets/86ca0510-6590-4b67-879d-f8f29c025905)
