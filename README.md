@@ -15,6 +15,8 @@ Passport is the only book i want to finish
 I'm the upgrade version he is the trial version
 ![Frame 21](https://github.com/user-attachments/assets/236cf8c8-ea83-4198-afc5-2bd6d4d0dab8)
 ![Frame 19](https://github.com/user-attachments/assets/473150b3-f5e8-4b29-ad29-ce490246896b)
+![Frame 18](https://github.com/user-attachments/assets/5505fb64-b51d-43e8-a9d4-3026376f9bea)
+![Frame 16](https://github.com/user-attachments/assets/220c1ebd-22ab-4557-9c88-f0638dbe3003)
 
 # mockups
 ![t- shirt](https://github.com/user-attachments/assets/1628fdf4-c2b6-447c-8228-b97452b2f0e8)
